@@ -1,5 +1,9 @@
-Here you can say lots of fun things about your site.
+# How can a Christian handle money wisely?
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+​   Did you ever have trouble handling money? Did you ever think about "How can a Christian handle money wisely?" Give me five minutes, and let me explain it to you. I believe after reading my advice you will become a proficient money handler. Let's dive into it!
+​		The first thing I'm going to introduce you is THE FOUR MONEY JARS! The concept is fairly simple. It's just a way you divide all your income into four separate modules. The four modules are tithing, offering to the poor, investment and deposit, and mothly usage. So let me explain them one by one.
+​		First of all, tithe. This is the money you should give to God. Why? Because everything we got was a blessing from the Lord. And God wants us to give one-tenth back to him as a sacrifice. So tithe will take 1/10 of your income.
+​		After giving a tithe to the Lord, you should also give some money to whoever is poorer than you. This is not compulsory, but it will be great if you do it. The amount of money you donate to the poor could range according to your concern. If you want me to give you a recommended amount, I would say 1/10.
+​		Investment is something many often overlook. Especially those who aren't that rich. People often think investments are only for those who are rich. But no, that is not true. Let me tell you something. The average inflation of China is about 1.99%, which means if you save all your money, say you have 100,000CNY, without interest each year. Then after ten years, your 100,000CNY will be worth only 82,115CNY. 17,885CNY just disappeared! So you better be wise about how you deposit them. I recommend you to save your money as a fixed deposit in a bank, or you can also purchase some funds. 
+​		Money that remains is money for your monthly usage. This includes monthly bill, daily usage, gift for others, and so on so forth. But remember you should not waste your money on unnecessary luxuries. Always buy things that fit your income. And you should arrange these money thriftily.
+​		Last but not least, ask God to help you with handling money. I'm sure that God would be glad to hear your prayer. Remember to seek His guidance in all financial decisions.
