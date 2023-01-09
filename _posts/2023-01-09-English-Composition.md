@@ -1,0 +1,5 @@
+## Contrast Susie's idea of spending money with the Biblical principles illustrated by Sandy and Christi
+There are a bunch of differences between Susie's idea of spending money and the Biblical principles illustrated by Sandy and Christi. And today I'll show you them.
+Susie is a molly-coddled wastrel. She tends to buy whatever she wants, and does not consider the price. She doesn't take a shit on how hard her parents work to earn the money. She does not have that sense of being thrifty in spending money. All she knows is "I want it. I got it."
+In contrast, Christi and Sandy illustrated the Biblical principles when spending their money. Not like Susie, who gets money from her parents as granted, they work to get paid. They manage their money wisely, have a weekly budget, and do not waste their money on unnecessary stuff. Last but not least, Sandy and Christi always ask the Lord to help them spend wisely.
+In conclusion, it's important to be responsible with our spending and to consider the impact of our financial decisions on ourselves and others. Setting a budget and seeking guidance from the Lord will be helpful in making wise financial choices.
